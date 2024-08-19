@@ -8,7 +8,7 @@
 
 支持加速访问：ChatGPT Google Facebook TikTok Instagram WhatsApp Messenger等等一系列网站。解锁NF/HBO/Bilibili港澳台/HULU/动画疯/Pixiv等流媒体
 
-奈云提供注册免费使用一个月，使用抵扣码：QLDK324 ，下单轻量套餐 输入抵扣码即可享受一个月免费体验，先试111111用再购买。
+奈云提供注册免费使用一个月，使用抵扣码：QLDK324 ，下单轻量套餐 输入抵扣码即可享受一个月免费体验，先试1111111用再购买。
 
 ## 奈云VPN优惠码
 
